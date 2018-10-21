@@ -1,12 +1,12 @@
-# Aayush Sharma
+#AKSHEY PRABHAKAR
 
 ### Location
 
-Mandi, Himachal Pradesh, India
+RAJOURI GARDEN NEW DELHI
 
 ### Academics
 
-Indian Institute of Technology, Mandi
+GTBIT
 
 ### Interests
 
